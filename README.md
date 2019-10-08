@@ -8,6 +8,3 @@ I really want to cry because I am so stressed about everything, and I have so mu
 4. study for math
 5. do SSAT
 6. go home and **cry**
-![Image of ellis crying](IMG_0104.JPG)
-![Image of ella crying](IMG_4266.jpg)
-![Image of ella crying](57941373937__D2E1CC9D-52B1-4249-A2E0-112D18FB7B98.JPG)
