@@ -9,3 +9,4 @@ I really want to cry because I am so stressed about everything, and I have so mu
 5. do SSAT
 6. go home and **cry**
 ![Image of ellis crying](IMG_0104.JPG)
+![Image of Ella crying](IMG_4266.jpg)
